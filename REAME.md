@@ -1,0 +1,3 @@
+It's my personnal Portfolio everything you will find here is real data.
+You can also find my Portfolio at this link denis-lucas.fr
+Yes I know I have to update it and I'm working on it...
